@@ -1,5 +1,4 @@
 Co-Founder of Pladom Group\
-Founder of W Auto Club\
-Founder of Tonlin Capital
+Co-Founder of W Auto Club
 
 🌐 [zilinw.com](https://zilinw.com)
